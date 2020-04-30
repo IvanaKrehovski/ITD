@@ -1,1 +1,1 @@
-# ITD
+# Informacione tehnologije i drustvo
